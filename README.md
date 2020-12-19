@@ -9,5 +9,5 @@ will definitely be merge by the owned this repository
 thank you for you'r attention. To contack me, you can call me in : 
 - instagram : https://www.instagram.com/mujib.luth/
 - twitter   : https://twitter.com/mujib_luth
-- facebook  : https://www.facebook.com/abdulmujib.luthfi.9.
+- facebook  : https://www.facebook.com/abdulmujib.luthfi.9 .
 I am waiting for good news from you
